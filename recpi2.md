@@ -13,7 +13,7 @@ Ingredients:
 - 1/2 tsp chili flakes (optional)
 - 1 tbsp olive oilvhbjnkml,
 - Salt and pepper to taste
-- Cooked rice or naan for serving
+- Cooked rice or naan for serving-i lova to eat any thung al the day
 
 Preparation:
 1. Heat the olive oil in a pan over medium heat. Add the diced onion and sauté until soft, about 5 minutes.
